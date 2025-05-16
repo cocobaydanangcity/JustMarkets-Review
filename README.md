@@ -1,4 +1,4 @@
-# **JustMarkets Review**
+# **JustMarkets Review 2025: Forex Broker & Trading Markets, Legit?**
 
 ---
 
